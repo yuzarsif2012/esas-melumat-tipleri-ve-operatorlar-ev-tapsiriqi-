@@ -1,0 +1,1 @@
+# esas-melumat-tipleri-ve-operatorlar-ev-tapsiriqi-
